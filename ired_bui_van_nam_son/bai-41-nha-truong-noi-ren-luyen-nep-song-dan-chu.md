@@ -1,0 +1,32 @@
+---
+title: "GIÁO DỤC KHAI MINH (Bài 41) - Nhà trường: Nơi rèn luyện nếp sống dân chủ"
+author: "Bùi Văn Nam Sơn"
+source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/giao-duc-khai-minh-bai-41-nha-truong-noi-ren-luyen-nep-song-dan-chu"
+---
+
+# GIÁO DỤC KHAI MINH (Bài 41) - Nhà trường: Nơi rèn luyện nếp sống dân chủ
+
+Để thực hiện được trọng trách vừa nêu, nhà trường phải gắn liền with xã hội (cách tiếp cận khác so với Rousseau), tức đặt "cuộc sống" của học sinh vào tâm điểm của lớp học. Ông giải thích: "Nhà trường phải thể hiện chính cuộc sống, đó là cuộc sống sinh động và thiết thân giống như khi học sinh đang ở trong gia đình, xóm giềng và nơi vui chơi". Nội dung dạy và học cần thoát thai và được cô đúc từ môi trường quen thuộc, từ "đời sống thực" ấy. Nhưng, Dewey tất nhiên biết rằng "đời sống thực" cũng bao hàm vô vàn những oái oăm, ngang trái (lừa đảo, cướp bóc, giết hại...) không phải cái gì và lúc nào cũng có giá trị giáo dục. Vì thế, trong quyển sách trên, ông chỉ đề ra một tiêu chuẩn sư phạm là "giản lược hóa" nhằm phân biệt điều hữu ích và điều có hại. Hai mươi năm sau, trong "Dân chủ và Giáo dục" (1916), ông bổ sung thêm hai tiêu chuẩn nữa. Bên cạnh việc "giản lược hóa" (simplify) , cần "sự tinh lọc" (purify) để học sinh biết lựa chọn thái độ và cách hành xử, và, sau cùng, là "sự cân đối" (balance) để học sinh biết bổ sung những khiếm khuyết trong kinh nghiệm và mở rộng chân trời ra khỏi khuôn khổ chật hẹp của giới tính, giai cấp, dân tộc và chủng tộc của mình. Trong tinh thần ấy, nhà trường tuy không phải và không thể là chính "cuộc đời", nhưng là cuộc đời được tinh luyện, được "lý tưởng hóa" vừa with kích thước của học sinh. Nhà trường thể hiện điều mà Dewey gọi là "cuộc sống cộng đồng" (trong tác phẩm trước) hay "xã hội dân chủ ở dạng bào thai" (trong tác phẩm sau).
+
+Trong tác phẩm trước, Dewey chỉ nhắc qua "nền dân chủ". Trong tác phẩm sau, ông bàn cặn kẽ hơn. Dewey không hiểu dân chủ đơn giản như một thể chế chính trị, xã hội, mà như "nếp sống", rất gần with nhận xét của Alexis de Tocqueville khi ông du hành và tìm hiểu nếp sống và tập quán "từ con tim" của vùng đất mới Bắc Mỹ ("Nền dân trị Mỹ", Phạm Toàn dịch, NXB Tri Thức, tái bản nhiều lần). Đặc điểm của "nếp sống dân chủ" trong nhà trường là mời gọi sự thảo luận của càng nhiều người càng tốt trước những câu hỏi và vấn đề gặp phải, cho tới khi tìm được giải pháp mà ai nấy đều thấy có phần mình trong đó. Dân chủ trong nhà trường không nhắm đến việc tìm đa số thông qua lá phiếu mà nhắm đến nền dân chủ của sự tham dự và đồng thuần. Người thầy có "quyền uy" không phải bằng chức vụ hay truyền thống mà bằng tri thức, kinh nghiệm và đức hạnh và chỉ tác động gián tiếp. "Tôi tin rằng - ông viết trong " Tâm miệm" - nền đạo đức trong nhà trường đến từ cuộc sống của nhà trường xét như một toàn bộ, chứ không trực tiếp đến từ thầy giáo".
+
+### Nội dung giáo dục: Tránh các thái cực
+
+Từ "nhà trường xét như toàn bộ" (hay nói cách khác "cuộc sống cộng đồng nhà trường"), ta dễ đoán biết nội dung ra sao của giáo dục. "Giáo dục đúng đắn chỉ có khi sức lực của học sinh được hoàn cảnh xã hội thách thức". "Hoàn cảnh xã hội" là phạm trù giáo dục học nền tảng của Dewey trong chiều hướng "thực học", with nghĩa cụ thể nhất. Thay chỗ cho những môn học "trừu tượng", xưa nay vốn được đặt lên hàng đầu - như văn chương, lịch sử, khoa học tự nhiên -, Dewey chủ trương đi đường vòng, thông qua những "hoạt động" thiết thực hàng ngày: ví dụ, nấu nướng, may mặc, thủ công, xây cất..., những gì bắt nguồn từ môi trường sống và từ thực tế xã hội của trẻ em. Trong tập luận văn "Nhà trường và Xã hội" (1899), ông biện minh cho học thuyết về "nhà trường-phòng thí nghiệm" của ông như sau:
+
+Những "hoạt động" như vừa nêu, nếu đáp ứng ba điều kiện, sẽ có tác động tích cực lên học sinh:
+1. Học sinh tập thói quen nhận diện và xác lập "hoàn cảnh" và "vấn đề cần giải quyết", thể hiện hơi thở của đời sống thực.
+2. Khêu gợi lòng ham thích và quan tâm bền bỉ nơi mọi học sinh, đó là, tha thiết with việc giao lưu xã hội, nghiên cứu khoa học, diễn đạt nghệ thuật và sáng tạo cái mới,
+3. Và sau cùng, biết nối kết "đối tượng" and "phương pháp" của các ngành khoa học lại with nhau, - chẳng hạn, nấu nướng đi liền with hóa học và khoa học thực phẩm, may mặc đi liền with lý thuyết về màu sắc, xây cất with cơ học và tĩnh học v.v..
+
+Qua các "hoạt động" ấy, nội dung của các môn học trừu tượng và hình thức trước nay sẽ được dịp quay trở lại with khung cảnh xã hội vốn là cội nguồn của chúng, như vị thần khổng lồ Antée trong thần thoại Hy Lạp luôn tìm cách bám vào lòng đất mẹ để có thêm sinh lực.
+
+Với quan niệm như thế về nội dung giáo dục, Dewey tin rằng sẽ tránh được hai tệ trạng và cũng là hai cực đoan: một bên là "chủ nghĩa hình thức" khô khan, xơ cứng của trường học truyền thống, không xuất phát từ cuộc sống hiện thực của trẻ em, mà chỉ xem trọng tính hệ thống của khoa học và các yêu cầu về nghề nghiệp của "cuộc sống người lớn" trong tương lai. Và bên kia là "chủ nghĩa duy tình" của việc lấy trẻ em làm trung tâm, chìều theo cảm xúc và ham thích của trẻ em để chúng tự ý lựa chọn những gì chúng muốn.
+
+Với ba điều kiện ấy, rõ ràng người thầy được giao phó vai trò mới: "Tôi cho rằng người thầy là thành viên của của cộng đồng giáo dục biết chọn lựa ảnh hưởng nào sẽ tác động lên học sinh và giúp học sinh biết phản ứng thích hợp trước ảnh hưởng ấy". Thầy giáo không còn là "ông thầy chuyên chế", một mình quyết định mọi việc, mà là người "trưởng nhóm" biết lôi cuốn học sinh cùng cộng tác. Thầy giáo vẫn hướng dẫn như trước nay, nhưng thay đổi cung cách giáo dục "quyền uy" bằng cung cách "tham dự có thẩm quyền".
+
+Không ít ngộ nhận đã xảy ra trong quá trình tiếp thu quan niệm "tân giáo dục" này của Dewey. Sau nhiều tranh cãi và phân tích, nhiều người nhận ra rằng Dewey không hề chủ trương một nhà trường không cần có giáo viên, chương trình và sự giảng dạy. Thật ra, Dewey không tin rằng học sinh có thể tự đơn độc tổ chức việc học. Trái lại, vẫn cần có sự trợ giúp của thầy giáo để việc học được tiến hành một cách có "quy củ", có "hệ thống" và "bền vững". Ta có thể gọi đó là chương trình giáo dục "mở": một mặt, đủ mềm dẻo để học sinh có thể nêu ý kiến và đề nghị, mặt khác đủ chặt chẽ để kiến thức và kỷ năng "không ngừng" được củng cố và mở rộng.
+
+Ta sẽ còn đến with Dewey ở hai câu hỏi cuối: bản chất của phương pháp giáo dục và vai trò của nhà trường trong sự tiến bộ của xã hội.
+
+*(Nguồn: Tia Sáng, 31/12/2014)*
