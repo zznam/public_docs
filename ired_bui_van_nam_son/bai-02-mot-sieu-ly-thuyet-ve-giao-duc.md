@@ -4,6 +4,20 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-2-mot-sieu-ly-thuyet-ve-giao-duc"
 ---
 
+"Siêu lý thuyết" (metatheory) nghe ghê gớm thật ra chỉ là lý thuyết về... lý thuyết! Nếu giáo dục là đối tượng nghiên cứu (lý thuyết), đồng thời là hành động thực hành (dạy và học) thì "siêu lý thuyết" bàn về cả hai lĩnh vực ấy. Nó sẽ giúp ta có cái nhìn tổng quan về đời sống giáo dục với tất cả sự phức tạp và phong phú của nó.
+
+**SIÊU LÝ THUYẾT GIÁO DỤC**
+
+Trong mớ bòng bong của thế giới giáo dục, Wolgang Brezinka (1928-), một trong những nhà lý luận giáo dục hàng đầu hiện nay, cho ta cái nhìn khá sáng sủa, dễ hiểu khi phân biệt ba lớp lý thuyết, gồm: khoa học giáo dục, triết học giáo dục và sư phạm thực hành ("Siêu lý thuyết về giáo dục", 1978).
+
+**KHOA HỌC GIÁO DỤC**
+
+Là một "khoa học", khoa học giáo dục (hay giáo dục học) quan sát, mô tả, phân tích nhân quả, rút ra những dự đoán và thao tác theo hướng "công nghệ học":
+
+- Trước hết, nó mô tả những hiện tượng và những gì liên quan đến giáo dục từ thực tại quan sát được, thử tìm các mối quan hệ nhân quả giữa những hiện tượng ấy, đưa ra các dự đoán, và, từ đó, phát triển một "công nghệ học", tức phương tiện và phương pháp nhằm tạo ra những kết quả được mong muốn nhưng chưa có trong thực tế. Khoa học giáo dục chỉ mang lại những thông tin về sự kiện và các mối quan hệ, nhưng không đưa ra những đánh giá có tính quy phạm.
+
+**TRIẾT HỌC GIÁO DỤC**
+
 Triết học giáo dục (hay triết lý giáo dục) thì khác! Là một bộ môn triết học, nó tra hỏi những khái niệm và những vấn đề cơ bản, có tính nguyên tắc của giáo dục, tức tra hỏi về tiến trình giáo dục lẫn về ngành giáo dục. Triết học không mô tả như khoa học giáo dục, trái lại, từ những mô tả ấy, đưa ra những đánh giá và đề ra những quy phạm cho nền giáo dục. Những đánh giá ấy thường vượt ra khỏi phạm vi khoa học đơn thuần, nhưng rất cần thiết cho việc lấy quyết định (chẳng hạn, về mục tiêu của giáo dục đối với cá nhân và xã hội v.v..). Nói cách khác, triết học giáo dục sử dụng kết quả của khoa học, có tính chặt chẽ khoa học (đón mời phản biện và phản đề nghị), nhưng lại sử dụng phương pháp đặc thù triết học.
 
 **SƯ PHẠM THỰC HÀNH**

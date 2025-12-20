@@ -4,6 +4,20 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-9-biet-de-lam-hieu-de-day"
 ---
 
+"Trung đạo vàng", như được trình bày trong số trước, là quan niệm duy thực của Aristoteles về việc giáo dục tình cảm và đạo đức, hay về nhân sinh quan nói chung. Đi tìm chỗ "chính trung" trong thái độ ứng xử, không nhắm đến các lý tưởng quá xa vời, không trở thành những nhà không tưởng về chính trị, đó là những "thông điệp" của vị thầy lão luyện.
+
+Dù đồng ý hay phản bác, thông điệp duy thực ấy vẫn còn sức vang vọng, nhất là trên phương diện giáo dục :
+
+1. Thật hệ trọng khi cần thừa nhận bài học từ kinh nghiệm rằng: con người có thể hành động sai trái, phản lý tính;
+2. Thừa nhận có sự đa dạng của những điều tốt; chúng có thể mâu thuẫn và xung đột với nhau (giàu sang, danh vọng là tốt, nhưng có thể đi ngược lại đức vị tha và công bằng v.v…).
+3. Ta không khỏi có lúc bị dẫn dắt hay bị buộc phải quyết định và làm những điều ta biết là không tốt. Chính ý thức về sự kết hợp bi đát này, hay, nói khác đi, ý thức về những xung đột không thể giải quyết được, cũng là nét đặc sắc và tinh tế trong cái nhìn duy thực của Aristoteles.
+
+Tính đa dạng trong đời sống thực hành của con người sẽ song hành với tính đa nguyên trong đời sống lý thuyết khi nhận thức về thực tại, là hai hòn đá tảng cho tòa nhà triết học Aristoteles, nhất là cho triết thuyết giáo dục của ông.
+
+**BỐN XÁC TÍN CỦA THUYẾT DUY THỰC TRONG CÁI NHÌN NGÀY NAY**
+
+Ta đã biết bốn xác tín của thuyết duy thực: 1. ta đang sống trong thế giới có thực; 2. thế giới ấy độc lập với việc ta có "sử dụng" nó hay không; 3. ta có thể nhận thức về nó một cách vững chắc; và 4. nhận thức ấy là cơ sở đáng tin cậy trong việc định hướng hành động của ta.
+
 Ngày nay, sau khi nhận ra vai trò to lớn cùa ngôn ngữ trong đời sống (chẳng hạn, trong lý thuyết "hành vi ngôn ngữ" cùa J. Searle), bốn xác tín nói trên trở nên chính xác hơn. Theo đó, 1. thế giới bên ngoài, tuy kỳ cùng chỉ có thể được hình dung một cách "nhân tạo" thông qua ngôn ngữ, nhưng không vì thế mà chỉ đơn thuần có tính chủ quan; 2. sự thật tương ứng with sự hình dung thích hợp (bằng ngôn ngữ) về thực tại ở trong đầu óc ta, có tính khách quan, không phụ thuộc vào thái độ hay tình cảm; 3. tính lô gíc and tính thuần lý là thước đo để đưa ra những phán đoán về thực tại; and 4. những thước đo trí tuệ ấy là cần thiết để nhận thức cũng như để kiểm tra nhận thức.
 
 Giống như các triết thuyết khác, thuyết duy thực cũng có nhiều "phiên bản" khác nhau. Chẳng hạn, ta có thuyết duy thực cổ điển cùa Hy lạp cổ đại hay cùa những nhà duy thực hiện đại, rất phổ biến trong giới khoa học, vững tin rằng, with phương pháp nghiên cứu and dụng cụ quan sát ngày càng tinh vi, khoa học tự nhiên là phương tiện tốt nhất để nắm bắt and lý giải thực tại. Lại cũng có thuyết duy thực cùa những nhà thần học hay những nhà tôn giáo tin vào thế lực siêu nhiên sáng tạo hoặc chi phối thế giới thực tại. Nhưng mọi "phiên bản" hầu như đều thừa hưởng bộ khung khái niệm từ các đại công trình cùa Aristoteles nhằm mô tả and phân loại các cấp độ cùa thực tại. Nhìn chung, ông xứng danh là cha đẻ and người đặt nền móng cho khoa học hiện đại, từ khoa học tự nhiên đến khoa học xã hội and nhân văn.

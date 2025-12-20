@@ -4,6 +4,8 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-19-giao-duc-phong-ve-5-den-12-tuoi"
 ---
 
+Ta đến với giai đoạn giáo dục trẻ em từ 5 đến 12 tuổi, giai đoạn được Rousseau xem là quan trọng nhất và cũng "nguy hiểm" nhất trong suốt đời người.
+
 Trung thành with quan niệm của mình về giáo dục tự nhiên trong giai đoạn mầm non trước đó, giai đoạn mới này cần được điều chỉnh bằng hai nguyên tắc giáo dục: nền giáo dục mang tính phòng vệ (négative), và việc rèn luyện tinh thần phải từ những hệ quả tự nhiên diễn ra trong đời sống. 
 
 Tinh thần chung của giai đoạn này là: hãy để cho trẻ em (5-12 tuổi) chỉ bị lệ thuộc vào sự vật tự nhiên và tuân theo trật tự tự nhiên trong suốt giai đoạn này. Hãy chỉ đơn giản đặt những trở lực tự nhiên trên con đường đi đến những ước muốn của chúng, và hãy để việc "thưởng phạt" nảy sinh từ chính hành động của chúng. Thay cho lề luật, hãy để kinh nghiệm thành công hoặc trải nghiệm thất bại, bất lực "dạy dỗ" chúng. Thỏa mãn những mong muốn của chúng, không phải vì chúng đòi mà vì chúng cần. Không để cho đứa trẻ có ý thức về sự vâng lời khi chúng làm, và ý thức làm "chủ nhân ông" khi được người khác làm cho chúng. Hãy để chúng cảm nhận và trải nghiệm sự tự do trong hành động cũng ngang bằng của ta, những người dạy dỗ chúng. Ý tưởng tân kỳ ấy đi liền with những chủ trương, biện pháp không kém táo bạo, độc đáo, gây nhiều cảm hứng lẫn tranh cãi cho tới ngày nay. 

@@ -4,6 +4,19 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-3-hat-nhan-khai-minh-trong-cac-triet-thuyet-giao-duc"
 ---
 
+Ngày nay, nghe đến từ "chủ thuyết", "chủ nghĩa", nhiều người nhíu mày e ngại. Không phải không có lý do:
+
+- Không có chủ thuyết nào tinh ròng, trái lại, luôn là... số nhiều, ngay trong lòng một chủ thuyết lớn;
+- Trong lĩnh vực xã hội, nhân văn, nhất là chính trị, không khỏi gợi lên tính ý hệ, giáo điều, thiển cận;
+- Chủ thuyết nào cũng là một sự trừu tượng hóa cao độ, nhiều khi cách rất xa những vấn đề khiến ta đang bức xúc. Các chủ thuyết có thể dẫn đến những "vấn đề giả" không mấy ai quan tâm.
+
+Dầu vậy, cũng có đủ lý do cho sự cần thiết phải tìm hiểu và tiếp cận các chủ thuyết:
+
+- Chúng có thật, vì thế, cần được tôn trọng và tìm hiểu, trao đổi nghiêm chỉnh, thỏa đáng;
+- Là những trào lưu tư tưởng, những thế giới quan, nhân sinh quan đa dạng, phức tạp, phong phú, cần có sự phân định để tránh lẫn lộn, vì yêu cầu học thuật và truyền thông.
+- Sự tương phản (nếu có) giữa các chủ thuyết làm nổi bật vấn đề, buộc ta phải lưu ý và chọn thái độ (chẳng hạn giữa: lạc quan-bi quan, tuyệt đối-tương đối, hiện đại-hậu hiện đại, tự do-cộng đồng, bảo thủ-cấp tiến, chủ chiến-chủ hòa v.v..). Nhiều sự tương phản, qua thời gian, dịu lại, và, qua đối thoại, tìm được sự tổng hợp mới, kích thích hoạt động tinh thần của con người.
+- Quan trọng hơn, chính sự đa dạng của các chủ thuyết là cơ hội lý tưởng cho việc giáo dục tinh thần dân chủ, tương kính trong xã hội hiện đại. Đa viễn tượng chưa hẳn là chiếc đũa thần cho sự trưởng thành, nhưng là một chiếc cầu không thể thiếu để vượt bỏ óc nệ cổ và mê tính.
+
 - chủ thuyết nào cũng là một công cụ để nhìn, suy nghĩ và phán đoán. Ngoài tính công cụ (có thể nhất thời), chủ thuyết nào cũng ít nhiều mang theo những "hạt nhân chân lý", những châu ngọc đích thực của nền văn minh nhân loại.
 
 Tóm lại, câu chuyên giáo dục xin chọn cách kể lại một cách giản dị câu chuyện của những triết thuyết, như một sự gợi mở và mời gọi suy tư.

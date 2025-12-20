@@ -4,6 +4,14 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-7-mo-hinh-duy-thuc-tu-cuoc-doi-cua-bac-ton-su"
 ---
 
+Khác với những người theo mô hình lý tưởng trong giáo dục, các nhà duy thực, tất nhiên, gần gũi hơn với thực tế cuộc sống và nhận rõ ranh giới giữa cái khả thi và cái bất khả thi. Tuy nhiên, ta đừng vội hiểu lầm: không thích những giấc mơ không tưởng không đồng nghĩa với việc "là là" trên mặt đất, chấp nhận và vừa lòng với hiện trạng một cách không phê phán.
+
+Hướng đến thực tại là hướng đến sự đa dạng muôn màu của cuộc sống, lưu tâm đến vô vàn động cơ và mục đích của con người (khác với mô hình lý tưởng chỉ quan tâm đến một số ít và được chọn lọc). Cái nhìn đa nguyên về thực tại mang lại tinh thần dân chủ cho mô hình duy thực. Đặc biệt, những yêu cầu đạo đức, chính trị không được đặt ra quá cao, trái lại, vừa với tầm với của con người, nói lên kích thước nhân đạo của mô hình này.
+
+**HIỆN THÂN CỦA MÔ HÌNH DUY THỰC**
+
+Ta không nhắc đến Aristoteles (384-324 tr. CN) như một nhân vật lịch sử đã lùi quá xa vào quá khứ. Ta đến với ông như một hiện thân sống động và còn đầy sức thuyết phục của một mô hình giáo dục mang nhiều tính hiện đại: mô hình nhà giáo và nhà khoa học chuyên nghiệp.
+
 Trong bộ sách quý: "Cuộc đời và sự nghiệp của sáu trăm nhân vật quan trọng nhất trên thế giới"(1977), Olof Gigon viết như sau về ông: "Aristoteles không phải là bậc giáo chủ khai thị những chân lý vĩnh cửu, cũng không phải người chiến sĩ đấu tranh đến cùng cho công lý cho dù thế giới vì thế mà trở thành tro bụi. Ông cũng không phải là con mọt sách mua vui với việc chẻ sợi tóc làm tư, và càng không phải là một ông già khó tính ban bố nhỏ giọt từng mẫu chân lý cho những môn đồ sùng kính. Trong toàn bộ sự nghiệp, ông chỉ tha thiết một điều, đó là sự khách quan: sự sáng sủa về ý nghĩa của các khái niệm và sự vững chắc của các luận cứ. Thế giới quan của ông gắn với thực tại càng sát sườn càng tốt, còn đạo đức học và triết học chính trị của ông đòi hỏi nơi con người và cộng đồng đúng những gì họ đủ sức làm được, không hơn và không kém. Ngay từ thời cổ đại, ai muốn đi tìm sự đam mê cuồng nhiệt hay sự thoát tục êm đềm thì đến với Platon và các nhà khắc kỷ, còn ai muốn được thông tin khách quan về những gì ta có thể biết được và làm được, hãy đến với Aristoteles".
 
 Ôn lại vài nét tiểu sử của ông, thiết nghĩ cũng không thừa: Aristoteles sinh năm 384 tr. CN, con của vị ngự y cho vua Amyntas II xứ Macedonie, mồ côi cha rất sớm. 17 tuổi rời quê nhà, lên Athens, vào làm môn đệ trong Viện Hàn Lâm của Platon suốt 20 năm cho đến khi Platon qua đời (347). Có lẽ do không được chọn làm "chưởng môn" nối nghiệp, ông rời Athens, cư ngụ ba năm trên đảo Lesbos, cơ hội tốt để ông đắm mình nghiên cứu sinh vật học và động vật học từ kho tàng thiên nhiên dồi dào của vùng này.

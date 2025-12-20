@@ -4,6 +4,8 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-20-rousseau-va-tuoi-cua-ly-tri"
 ---
 
+Giai đoạn từ 12 đến 15 tuổi là giai đoạn duy nhất trong đời người mà sức lực lớn hơn nhu cầu và đòi hỏi của bản thân!
+
 Vào tuổi 12 hay 13, trẻ em phát triển sức lực nhanh hơn nhu cầu. Đam mê tính dục - đam mê mạnh nhất và "kinh khủng" nhất - chưa được đánh thức. Thời tiết, khí hậu khắc nghiệt không "ăn thua" gì with cậu. Sức trai đang lớn thay cho áo quần. Ăn gì cũng thấy ngon, nằm đâu cũng ngáy khò khò. Cậu chưa bị những giấc mơ quấy nhiễu. Người lớn nghĩ sao cũng mặc... 
 
 Vấn đề bây giờ không phải là "dạy dỗ" cậu về khoa học, mà khêu gợi để cậu ham thích khoa học, giúp cho cậu biết phương pháp để tiếp thu khoa học khi lòng ham thích này phát triển hơn lên. Nói ngắn, đây là giai đoạn duy nhất trong đời người mà sức lực lớn hơn nhu cầu và đòi hỏi của bản thân! 

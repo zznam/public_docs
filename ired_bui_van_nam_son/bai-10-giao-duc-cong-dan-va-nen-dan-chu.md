@@ -4,6 +4,8 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-10-giao-duc-cong-dan-va-nen-dan-chu"
 ---
 
+Alexis de Tocqueville (1805–1859), trong Nền Dân Trị Mỹ (bản tiếng Việt của Phạm Toàn, NXB Tri Thức, tái bản lần 3, 2013), nổi tiếng với nhận định: nền dân chủ hiện đại không thể vận hành tốt mà không có "những đức tính của người công dân".
+
 Vì thế, theo ông, khoa học chính trị không chỉ nghiên cứu nền dân chủ như là định chế mà còn như là lối sống đặc thù, lối sống cùa "con người dân chủ". Lối sống ấy thấm nhuần trong tư tưởng, tình cảm, nhất là trong những "tập quán cùa con tim", bởi, những quyền tham gia cùa người dân mà mọi hiến pháp dân chủ đều cam kết chỉ có thể trở thành hiện thực trong một nền "văn hóa chính trị" sống động. Ông du nhập một thuật ngữ hệ trọng vào châu Âu: sự dấn thân dân sự (civic involvement), and đặt xã hội trước "sứ mệnh giáo dục về nền dân chủ" (mission to educate democracy). Thật đáng kinh ngạc khi thấy rằng những tư tưởng rất hiện đại ấy, về cơ bản, đã sớm có mặt trong triết học chính trị and giáo dục cùa Aristoteles hơn hai nghìn năm trước!
 
 **NHỮNG ĐỨC TÍNH CÔNG DÂN**

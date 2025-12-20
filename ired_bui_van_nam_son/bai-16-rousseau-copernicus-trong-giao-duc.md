@@ -4,6 +4,8 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-16-rousseau-copernicus-trong-giao-duc"
 ---
 
+"Không có sự thay đổi nào giàu tính cách mạng hơn thế. Giống như Copernicus đã phá hủy vũ trụ học Trung cổ, Rousseau đã đặt dấu chấm hết cho các quan niệm cổ truyền về trẻ em, bằng cách cho thấy rằng trẻ em là một tạo vật của thiên nhiên, hoạt động và lớn mạnh hòa điệu với quy luật của thiên nhiên".
+
 Đó là nhận định của Frederick Eby (Sự phát triển của giáo dục hiện đại/The Development of Modern Education, 1964) về triết thuyết giáo dục của Rousseau. Thật thế, suốt bao thế kỷ, lý thuyết và thực hành giáo dục được xác lập từ thế đứng và lợi ích của xã hội người lớn. Không ai có thể nghĩ từ một quan điểm nào khác! 
 
 ### LẤY TRẺ EM LÀM TRUNG TÂM 

@@ -4,6 +4,8 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-17-rousseau-giao-duc-tu-nhien-la-gi"
 ---
 
+Con người, theo Rousseau, đi vào xã hội, nhưng đó phải là một xã hội được "hiệu chỉnh" sao cho phù hợp với những đức tính và năng lực tự nhiên của con người, chứ không phải để trở thành công cụ phục vụ.
+
 Vì thế, ông hình dung hai hệ thống giáo dục khác nhau về hình thức do điều kiện xã hội không giống nhau, nhưng cùng chung mục đích. Hệ thống thứ nhất dành cho xã hội đã được tổ chức phù hợp with bản tính tự nhiên: nhỏ, gọn, dành cho những con người tự do, dạy cho trẻ em vui chơi trong tinh thần tập thể, huynh đệ và đoàn kết. Hệ thống thứ hai dành cho xã hội "văn minh và đồi trụy" hiện tồn. 
 
 Trước khi cho đi vào xã hội, cần vun bồi tinh thần độc lập, lương thiện, và trui rèn cho trẻ em năng lực đề kháng trước ảnh hưởng xấu của xã hội. Cái trước gọi là hệ thống giáo dục chủ động, cái sau là hệ thống giáo dục phòng vệ. Trong thực tế, hai hệ thống kết hợp và bổ sung cho nhau, vì cùng chung một mục tiêu. 

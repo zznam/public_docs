@@ -4,6 +4,18 @@ author: "Bùi Văn Nam Sơn"
 source: "https://www.ired.edu.vn/tu-lieu-giao-duc/bui-van-nam-son/tro-chuyen-triet-hoc-cau-chuyen-giao-duc-bai-1-giao-duc-mot-nhan-quyen-co-ban"
 ---
 
+"Không nên để học vấn mãi làm người khách trọ. Hãy cử hành hôn lễ với chàng (nàng) thôi!". Lời khuyên ấy của De Montaigne (1533-1592), nhà hiền triết người Pháp, dẫn đến lời khuyên tiếp theo của cụ Nguyễn Du: "Trăm năm tính chuyện vuông tròn/phải dò cho đến ngọn nguồn lạch sông".
+
+Câu chuyện giáo dục - mở đầu cuộc Trò chuyện triết học dang dở và... bất tận, nay được hân hạnh tái ngộ bạn đọc - sẽ thử làm công việc ấy một cách thật khái quát, góp phần vào nỗ lực suy nghĩ và thảo luận chung về vấn đề giáo dục đầy bức xúc.
+
+**KHẢ THỂ CỦA MỘT "QUYỀN TỰ NHIÊN"**
+
+Trước khi đi tìm "ngọn nguồn lạch sông" của vấn đề giáo dục về cả hai phương diện: phương diện lịch sử (các chủ thuyết hay các triết học giáo dục tiêu biểu) và phương diện hệ thống (các khái niệm "nền tảng" của giáo dục), hãy thử đặt giáo dục vào đúng "cương vị" của nó : như môt nhân quyền cơ bản.
+
+Điều 26 của Tuyên Ngôn Phổ Quát về Nhân quyền của Liên Hợp Quốc ngày 10.12.1948 đã trịnh trọng khẳng định:
+
+"1. Mọi người đều có quyền được hưởng giáo dục. Giáo dục phải miễn phí, ít nhất là ở bậc tiểu học và trung học cơ sở. Giáo dục tiểu học phải là bắt buộc, Giáo dục kỹ thuật và dạy nghề phải đến được với mọi người, và giáo dục đại học hay cao hơn phải theo nguyên tắc công bằng cho bất cứ ai có khả năng.
+
 2. Giáo dục nhằm giúp con người phát triển đầy đủ về nhân cách và thúc đẩy sự tôn trọng các nhân quyền và các tự do cơ bản của con người. Giáo dục cũng phải nhằm tăng cường sự hiểu biết, lòng khoan dung và tình hữu nghị giữa tất cả các dân tộc, các nhóm chủng tộc hay tôn giáo, cũng như phải nhằm đẩy mạnh các hoạt động của Liên Hợp Quốc về duy trì hòa bình.
 3. Cha mẹ có quyền ưu tiên lưa chọn các hình thức giáo dục cho con cái họ."
 
